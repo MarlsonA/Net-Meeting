@@ -1,3 +1,0 @@
-# Net-Meeting
- This is what I have started with whats your take...
- 
